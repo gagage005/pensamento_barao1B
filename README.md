@@ -1,1 +1,0 @@
-# pensamento_barao1B
